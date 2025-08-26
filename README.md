@@ -26,7 +26,7 @@ i will also block annoying people. this includes people who don't respect bounda
 
 if you are a darkshipper stay far away from me loser. especially if you're an adult darkshipper. you ain't the good kind of perv girl
 
-also, if you are younger than 15 or 14... please don't interact, for your own safety. i went through a lot of trauma on the internet, and i want kids to be safe. i am not your role model LMFAO
+also, if you are younger than 15 or 14... please don't interact, for your own safety **unless you are asking for either life advice or ponytown help.** i went through a lot of trauma on the internet, and i want kids to be safe. i am not your role model LMFAO
 
 # before you interact i guess....
 
