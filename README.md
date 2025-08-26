@@ -40,4 +40,8 @@ sometimes i get distant. sometimes i go on hiatus. this doesn't mean that i hate
 
 my memory is horrible. i have forgotten entire members of my family before (and not just distant relatives). if i forget something, tell me again. i will do things like tell the same story 15 times and not remember the last. 
 
-# ermm scratches head i think i'm done with this. fuck bitches get money idk
+# :)
+
+### alien toxic relationship asmr (kissing, fight scene, pregnancy)
+
+[![alien toxic relationship asmr (kissing, fight scene, pregnancy)](https://img.youtube.com/vi/PSpCpDb95Bw/0.jpg)](https://www.youtube.com/watch?v=VIDEO_ID](https://www.youtube.com/watch?v=PSpCpDb95Bw))
