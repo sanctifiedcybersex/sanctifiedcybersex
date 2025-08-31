@@ -24,7 +24,7 @@ i don't want tcoaal fans, hazbin/helluva fans, or alfred's playhouse fans intera
 
 i will also block annoying people. this includes people who don't respect boundaries, zionists, bigots of any kind really, anti-system, anti-furry, anti-kin, anti-inclus, and anti-endos. if you hate me for what i am as a person, i don't want to be near you! fuck off!
 
-if you are a darkshipper stay far away from me loser. especially if you're an adult darkshipper. you ain't the good kind of perv girl
+if you are a darkshipper stay far away from me pleaaase. especially if you're an adult darkshipper/you are doing it specifically for fun and not to cope with anything. yes it is a coping mechanism, yes it is a bad one. darkshipper communities encourage this type of behavior and it's not good. if you have to cope this way keep it to yourself brah
 
 also, if you are younger than 15 or 14... please don't interact, for your own safety **unless you are asking for either life advice or ponytown help.** i went through a lot of trauma on the internet, and i want kids to be safe. i am not your role model LMFAO
 
