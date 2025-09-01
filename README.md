@@ -18,6 +18,8 @@ ask me about my interests, but don't be mean about them.
 
 i have memory loss lollllll being a udd system don't help that shit one bit
 
+I LOVE KISSING OBJECTS. I FUCKING LOVE OBJECTS. objectums you are safe with me. Fuck yeah
+
 # dni you dumb ho
 
 i don't want tcoaal fans, hazbin/helluva fans, or alfred's playhouse fans interacting. block me or i block you. also why are you fuckers on the safe server? hashtag i hate incest likers
