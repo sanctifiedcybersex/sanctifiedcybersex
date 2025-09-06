@@ -1,5 +1,4 @@
-# hi there.
-# READ MY DNI AND BYI PLEASE IT'S IMPORTANT. GENUINELY.
+# hi there .. pls read my dni and byf :3
 
 ![](https://komarev.com/ghpvc/?username=sanctifiedcybersex&abbreviated=true)
 
