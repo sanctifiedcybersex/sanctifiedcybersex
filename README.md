@@ -72,7 +72,7 @@ also, if you are younger than 15 or 14... please don't interact, for your own sa
 # before you interact i guess....
 
 <p align="center">
-i'm a proshipper and LIGHT comshipper BY DEFINITION. i may sometimes sit NEAR the protree, but i won't actively associate with those sitting there, especially non-coping darkshippers... the original defintion of proshipper is to be anti-harassment, and for the notion of fandom shipping in general. i do not go out of my way to harass people. i may shittalk you with people i'm close to, but that's it. and a comshipper is someone who ships complicated dynamics. i ship ***legal*** complicated dynamics, because i'm a lightshipper. i am anti most forms of censorship, pro consequences :/
+i'm a proshipper and comshipper by definition. i may sometimes sit NEAR the protree, but i won't actively associate with those sitting there, especially non-coping darkshippers... the original defintion of proshipper is to be anti-harassment, and for the notion of fandom shipping in general. i do not go out of my way to harass people. i may shittalk you with people i'm close to, but that's it. and a comshipper is someone who ships complicated dynamics. i ship legal complicated dynamics, and that makes me a lightshipper. i am anti censorship, pro consequences :/
 </p>
 
 <p align="center">
