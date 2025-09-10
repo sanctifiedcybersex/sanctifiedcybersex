@@ -1,8 +1,8 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=sanctifiedcybersex&abbreviated=true)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=sanctifiedcybersex&abbreviated=true)
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤhi there .. pls read
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤhi there .. pls read
 
 
 
@@ -12,7 +12,7 @@
 </p>
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[strawpage](https://sanctifiedsoda.straw.page) ㅤ [pronouns.page](https://en.pronouns.page/@virtuapup) ㅤ [atabook](https://sanctified.atabook.org/)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[strawpage](https://sanctifiedsoda.straw.page) ㅤ [pronouns.page](https://en.pronouns.page/@virtuapup) ㅤ [atabook](https://sanctified.atabook.org/)
 ㅤ
 ㅤ
 ㅤ
