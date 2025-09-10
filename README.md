@@ -12,7 +12,7 @@
 </p>
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[strawpage](https://sanctifiedsoda.straw.page) . [pronouns.page](https://en.pronouns.page/@virtuapup)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[strawpage](https://sanctifiedsoda.straw.page) ㅤ [pronouns.page](https://en.pronouns.page/@virtuapup)
 ㅤ
 ㅤ
 ㅤ
