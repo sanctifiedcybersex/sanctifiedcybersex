@@ -16,4 +16,4 @@ hi there .. pls read my strawpage!!!
 ㅤ
 ㅤ
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=4fp0asyhbo9h5rumcdu5tintk&cover_image=true&theme=default&show_offline=false&background_color=2c2c35&interchange=true&bar_color=dda1b3&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=4fp0asyhbo9h5rumcdu5tintk&redirect=true)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=4fp0asyhbo9h5rumcdu5tintk&cover_image=true&theme=default&show_offline=false&background_color=2c2c35&interchange=true&bar_color=dda1b3&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=4fp0asyhbo9h5rumcdu5tintk&redirect=true)
