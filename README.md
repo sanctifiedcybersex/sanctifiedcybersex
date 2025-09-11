@@ -12,7 +12,7 @@ hi there .. pls read my strawpage!!!
 </p>
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[strawpage](https://sanctifiedsoda.straw.page) ㅤ [pronouns.page](https://en.pronouns.page/@virtuapup) ㅤ [atabook](https://sanctified.atabook.org/)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[strawpage](https://sanctifiedsoda.straw.page) ㅤ [pronouns.page](https://en.pronouns.page/@virtuapup) ㅤ [atabook](https://sanctified.atabook.org/)
 ㅤ
 ㅤ
 
