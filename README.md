@@ -12,7 +12,7 @@ hi there .. pls read my strawpage an' sign my atabook!! i'd greatly 'preciate it
 </p>
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ[strawpage](https://sanctifiedsoda.straw.page) ㅤ [pronouns.page](https://en.pronouns.page/@virtuapup) ㅤ [atabook](https://sanctified.atabook.org/)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ[strawpage](https://virtuapuppy.straw.page/) ㅤ [pronouns.page](https://en.pronouns.page/@virtuapup) ㅤ [atabook](https://sanctified.atabook.org/)
 ㅤ
 ㅤ
 
