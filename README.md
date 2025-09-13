@@ -2,7 +2,7 @@
 
 
 <p align="center">
-hi there .. pls read my strawpage!!!
+hi there .. pls read my strawpage an' sign my atabook!! i'd greatly 'preciate it :)
 </p>
 
 
