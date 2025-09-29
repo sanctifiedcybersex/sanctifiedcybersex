@@ -1,13 +1,11 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=sanctifiedcybersex&abbreviated=true)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](![](https://komarev.com/ghpvc/?username=your-sanctifiedcybersex&color=f4b7b7style=plastic&label=ruffians+zᶻ+૮˶-+ﻌ+-˶ა⌒)ᦱ)
 
 
 <p align="center">
 BAU BAU !  please read my strawpage and sign my atabook !
+  
 </p>
-
-
-![FUWAMOCO_2025_Birthday_3D_Live_Thumbnail_by_Atsushi_Furusawa](https://github.com/user-attachments/assets/7b672fa2-fb8b-4709-808a-2060cff75c4a)
-
+<img width="736" height="414" alt="Untitled305_20250929141356" src="https://github.com/user-attachments/assets/da775b20-05e0-4237-96ae-885eb5bc5169" />
 <p align="center">
 
 </p>
