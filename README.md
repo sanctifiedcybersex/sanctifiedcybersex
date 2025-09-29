@@ -5,7 +5,8 @@
  BAU BAU !  please read my strawpage and sign my atabook !
 </div>
   
-<p align="center"> <img width="736" height="414" alt="Untitled305_20250929141356" src="https://github.com/user-attachments/assets/da775b20-05e0-4237-96ae-885eb5bc5169"
+<p align="center"> <img width="594" height="420" alt="1000016449-removebg-preview" src="https://github.com/user-attachments/assets/b30c3840-6a71-4030-9dce-65ac37b72730" />
+
 
 　
 
@@ -14,4 +15,12 @@
 </div>
 ㅤ
 
-<p align="center"> [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=4fp0asyhbo9h5rumcdu5tintk&cover_image=true&theme=default&show_offline=false&background_color=2c2c35&interchange=true&bar_color=dda1b3&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=4fp0asyhbo9h5rumcdu5tintk&redirect=true) />
+
+</div>
+
+  <div align="center">
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=4fp0asyhbo9h5rumcdu5tintk&cover_image=true&theme=natemoo-re&show_offline=true&background_color=000000&interchange=false&bar_color=f4b7b7&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=4fp0asyhbo9h5rumcdu5tintk&redirect=true)
+
+</div>
+
