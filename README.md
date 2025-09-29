@@ -2,13 +2,13 @@
 
 
 <p align="center">
-hi there .. pls read my strawpage an' sign my atabook!! i'd greatly 'preciate it :)
+BAU BAU !  please read my strawpage and sign my atabook !
 </p>
 
 
 
 <p align="center">
- <img width="350" height="350" alt="b1e84d8758349f8bbbb43f1321ab47a4-removebg-preview" src="https://github.com/user-attachments/assets/22d4842e-9ac9-4ff3-a8e5-98a9f24c37bf" />
+ <img width="350" height="350" alt="[b1e84d8758349f8bbbb43f1321ab47a4-removebg-preview](https://static.wikia.nocookie.net/virtualyoutuber/images/c/cd/FUWAMOCO_2025_Birthday_3D_Live_Thumbnail_by_Atsushi_Furusawa.jpg/revision/latest?cb=20250202124038)" src="[https://github.com/user-attachments/assets/22d4842e-9ac9-4ff3-a8e5-98a9f24c37bf](https://static.wikia.nocookie.net/virtualyoutuber/images/c/cd/FUWAMOCO_2025_Birthday_3D_Live_Thumbnail_by_Atsushi_Furusawa.jpg/revision/latest?cb=20250202124038)" />
 </p>
 
 
